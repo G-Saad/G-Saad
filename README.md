@@ -6,5 +6,5 @@
 - 📫 How to reach me: E-mail - polis.aqua@protonmail.com
 - ⚡ Fun fact: we don't live in a simulation.
 
-<gif src="https://digitaleanime.dz/wp-content/uploads/2020/12/05.gif">
+<img src="https://digitaleanime.dz/wp-content/uploads/2020/12/05.gif">
 -->
