@@ -6,5 +6,5 @@
 - 📫 How to reach me: E-mail - polis.aqua@protonmail.com
 - ⚡ Fun fact: we don't live in a simulation.
 
-<img src="https://tenor.com/view/shitpost-gif-21913483">
+<img src="https://www.gamelegends.it/wp-content/uploads/2017/01/Grand-Theft-Auto-V-Liberty-City-GTA-IV.jpg">
 -->
